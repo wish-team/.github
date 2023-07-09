@@ -1,1 +1,1 @@
-Wish Work is a Software Company delivers state-of-the-art services and products
+Wish Work is a Software Partner Company that delivers state-of-the-art services and products
